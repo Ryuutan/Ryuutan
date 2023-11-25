@@ -1,3 +1,3 @@
 - Hi, I’m @Ryuutan
 - I’m currently studying for a Bachelor of Computer Science
-- If there's anything to reach out for, my Discord is Ole#4444
+- If there's anything to reach out for, my Discord is Ohlay
